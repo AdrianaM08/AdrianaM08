@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AdrianaM08
-- 👀 I’m interested in intership manual tester
+- 👀 I’m interested in a Manual tester intership or Manual tester junior job
 - 🌱 I’m currently learning for the certificate ISTQB
 - 💞️ I’m looking to collaborate on all the projects avalaible like manual tester
 - 📫 How to reach me , you can call me at 0748855043 or write me at adrianatanasoiu42@gmail.com
